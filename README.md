@@ -1,0 +1,1 @@
+https://pricesofcryptos.netlify.app/
